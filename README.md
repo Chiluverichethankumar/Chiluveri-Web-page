@@ -6,7 +6,7 @@
 ## 📞 Contact Information  
 - **Phone:** +91 91824 19079  
 - **Email:** [chiluverichethankumar@gmail.com](mailto:chiluverichethankumar@gmail.com)  
-- **LinkedIn:** [View Profile](https://www.linkedin.com/in/chiluverichethankumar-8aa185220/)  
+- **LinkedIn:** [View Profile]([https://www.linkedin.com/in/chiluverichethankumar-8aa185220/](https://www.linkedin.com/in/chiluverichethankumar-844a05274/) 
 - **Address:** 1-9-64/65, Bheemnagar, Gadwal, Jogulamba Gadwal, Telangana (509125)  
 
 ---
